@@ -1,2 +1,2 @@
 # Information-Systems
-This was a university subject that I got an overall HD on. Enclosed are some of the files that has been produced.
+This was a university subject on which I got an overall HD. Enclosed are some of the files that have been produced.
